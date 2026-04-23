@@ -1,6 +1,5 @@
 ## Olá, eu sou Gabriel Campos!
 
-___
 
 <br clear="both">
 
