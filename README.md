@@ -1,4 +1,4 @@
-## Olá, eu sou Gabriel Campos!
+## Olá, eu sou Gabriel Campos! 👋
 
 
 <br clear="both">
